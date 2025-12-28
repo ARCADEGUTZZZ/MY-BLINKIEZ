@@ -1,6 +1,15 @@
 # MY-BLINKIEZ
 Just some funny blinkies, don't gotta take em too seriously.
 
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/dc5602a9-8fc2-4609-9165-562b1b426c00" alt="Sample Image" width="400"/>
+</p>
+
+ <p align="center">
+ <꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷꒷︶꒷꒥꒷︶˚.꒷꒥꒷︶꒷/>
+</p>
+
 <img width="101" height="57" alt="genderqueer_stamp_by_aerosym_diyjwts" src="https://github.com/user-attachments/assets/6a2c7ecd-e858-4b9f-b3d8-3ce3f0b018df" /> <img width="101" height="57" alt="transgender_stamp_by_aerosym_diyk2lu" src="https://github.com/user-attachments/assets/47c25adf-87bb-4c33-9236-8b3d70cec460" />
 <img width="101" height="57" alt="transmasculine_stamp_by_aerosym_diym8va" src="https://github.com/user-attachments/assets/d94ca81a-383c-490b-87ca-f6952335bcc6" />
 <img width="101" height="57" alt="gay_stamp_by_aerosym_disetag" src="https://github.com/user-attachments/assets/cc7d0cff-91f1-42fc-ae7f-fa1f82cb3bbb" />
@@ -16,3 +25,5 @@ Just some funny blinkies, don't gotta take em too seriously.
 <img width="99" height="56" alt="d1xz6jg-0cf0228d-66fc-43de-839d-4e83b532b463" src="https://github.com/user-attachments/assets/73740e36-30bd-48c5-9e15-90cfc47b95ac" />
 ![d92y00a-ff2863ce-84a9-4e59-8b2e-fb8b6c221488](https://github.com/user-attachments/assets/d830e2e9-e414-4bd6-b6d4-c78c430224ac)
 <img width="99" height="56" alt="d2yt0me-55cd5367-b0d1-4676-8877-c891e78dc2d3" src="https://github.com/user-attachments/assets/8c5a191a-b8a2-497a-8d60-1ffe7fd27b72" />
+![blinkiesCafe-2s](https://github.com/user-attachments/assets/48e4e0d2-b08a-4014-be97-3f4d231bf3dd)
+![blinkiesCafe-Zw](https://github.com/user-attachments/assets/485f42d1-070c-4d71-87b5-8895d5b3e1f0)
