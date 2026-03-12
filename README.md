@@ -13,6 +13,16 @@ Just some funny blinkies, don't gotta take em too seriously.
 ![blinkiesCafe-2s](https://github.com/user-attachments/assets/48e4e0d2-b08a-4014-be97-3f4d231bf3dd)
 ![blinkiesCafe-Zw](https://github.com/user-attachments/assets/485f42d1-070c-4d71-87b5-8895d5b3e1f0)
 
+<img width="99" height="56" alt="dg5r1i4-8aff2a26-2a18-486d-8a68-982ff7b98d78" src="https://github.com/user-attachments/assets/813e3325-d34f-496d-8926-9cf4dbc14453" />
+<img width="99" height="56" alt="daaztol-c173ecb9-6467-4d16-b652-064c0d68574f" src="https://github.com/user-attachments/assets/c70ec532-ab72-4d5f-8b4a-273c0ac14421" />
+<img width="99" height="56" alt="da52nkf-8430bd6b-f919-4074-b4bb-24a67011fa6a" src="https://github.com/user-attachments/assets/3a8bcd35-6fe9-43eb-b80b-d1ec1b2efa3b" />
+<img width="101" height="57" alt="da0sigm-f66bf701-80ca-4b6c-b7ec-d1ddfff7eaf6" src="https://github.com/user-attachments/assets/8a3bd46d-d786-46b4-8d8b-439263655b94" />
+
+![tumblr_97be390bad577f79d0796c336efb8b11_93c9073a_1280](https://github.com/user-attachments/assets/402bbeac-0c0b-42e6-8323-7916a46060a7)
+
+![tumblr_1aca506ee6f6f2d5414ba70f42fc82ac_e5b0f6d6_1280](https://github.com/user-attachments/assets/6c51582d-2392-4c95-b340-7576683e1677)
+![tumblr_5519615281780582bae7d3e48bf427ce_b4bf772d_1280](https://github.com/user-attachments/assets/3faf2b67-e723-4040-8bc8-659e25e7d959)
+
 <img width="101" height="57" alt="genderqueer_stamp_by_aerosym_diyjwts" src="https://github.com/user-attachments/assets/6a2c7ecd-e858-4b9f-b3d8-3ce3f0b018df" /> <img width="101" height="57" alt="transgender_stamp_by_aerosym_diyk2lu" src="https://github.com/user-attachments/assets/47c25adf-87bb-4c33-9236-8b3d70cec460" />
 <img width="101" height="57" alt="transmasculine_stamp_by_aerosym_diym8va" src="https://github.com/user-attachments/assets/d94ca81a-383c-490b-87ca-f6952335bcc6" />
 <img width="101" height="57" alt="gay_stamp_by_aerosym_disetag" src="https://github.com/user-attachments/assets/cc7d0cff-91f1-42fc-ae7f-fa1f82cb3bbb" />
@@ -47,3 +57,5 @@ Just some funny blinkies, don't gotta take em too seriously.
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e102e8d-3518-4fec-9008-4b7d029faf66" />
 <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/ee41c69a-9c39-4285-8713-94665f60b5a6" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/f646f16d-9166-495f-bb32-06aa0811d55b" />
+<img width="103" height="59" alt="image" src="https://github.com/user-attachments/assets/6c2b00a2-1a94-4316-940b-150a4a867a37" />
+
